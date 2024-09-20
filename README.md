@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning mathletics.
 - 💞️ I’m looking to collaborate on nuclear research and virtual simulation。
 - 📫 How to reach me ...
-- my student e-mail address:xieyj22@mails.tsinghua.edu.cn
-- my private e-mail address:1835056496@qq.com
-- my telephone number:+86(CH):19517520459
+- my student e-mail address: xieyj22@mails.tsinghua.edu.cn
+- my private e-mail address: 1835056496@qq.com
+- my telephone number: +86(CH)19517520459
 - 😄 Pronouns: ajian
 - ⚡ Fun fact: single person
 
